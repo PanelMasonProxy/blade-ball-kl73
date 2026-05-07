@@ -1,4 +1,4 @@
-
+Experience blade ball like never before with rare blade ball Script, the #1 Script. Includes god mode and anti-ban for unbeatable performance.
 
 
 
